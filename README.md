@@ -1,5 +1,6 @@
 # hello-world
 following guide
-i am kind of a loser 
-i didnt achieve much 
-i am kinda stupid too 
+i am uv rays 
+sun produces uv ray
+and  i can talk 
+
